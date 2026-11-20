@@ -1,0 +1,2 @@
+# servidor
+SERVIDOR DA NETHERITE SQUAD 2
